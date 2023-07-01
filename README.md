@@ -2,7 +2,7 @@
 
 ### A bit about me:
 
-Nationality: AR
+Nationality: AR/ES
 
 Personal interests: ⚽ 💪🏽 💻 🍕 🛫 
 
